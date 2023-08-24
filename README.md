@@ -1,6 +1,6 @@
 ### *Boas vindas* 🥀🥀
 
-Meu nome é Daniel Pereira 🤟
+Meu nome é Kimberly 🤟
 
 - Estou estudando com o Alura
 
